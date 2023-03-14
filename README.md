@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **panmonikmm@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/16-wvR4FaZAFo1rqj4YBtV1YN4bfph-mK/view?usp=share_link](https://drive.google.com/file/d/16-wvR4FaZAFo1rqj4YBtV1YN4bfph-mK/view?usp=share_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1f6Mi2PyGuODnFdsLJOBQ6jndBGUvFTrN/view?usp=share_link](https://drive.google.com/file/d/1f6Mi2PyGuODnFdsLJOBQ6jndBGUvFTrN/view?usp=share_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
